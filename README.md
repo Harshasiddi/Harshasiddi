@@ -1,7 +1,8 @@
-- 👋 Hi, I’m @Harshasiddi
-- 👀 I’m interested in cars
-- 🌱 I’m currently learning tech
-- 💞️ I’m looking to collaborate on cooking
-- 😄 Pronouns: he/him
+- Hi, I’m @Harshasiddi
+- I’m interested in cars
+- I’m currently working in tech
+- My favourite food is Biryani
+- My favourite car is lamborghini
+
 
 
