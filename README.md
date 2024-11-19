@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on cooking
 - 😄 Pronouns: he/him
 hihkjbc,jasnbxabclk,cn;lsxj;anc
-xjhwavdciouaehb, 
+xjhwavdciouaehb, vkjwBX,nxklXN
 khavioahnclk ajcbkahgit eec
 
